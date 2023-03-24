@@ -1,3 +1,5 @@
+**Achtung:** Diese Datenschutzerklärung ist veraltet. Weil die meisten Jugendarbeiten mittlerweile unsere Website nutzen und dort auf die Datenschutzerklärung des SWD-EC verlinkt wird, wird diese Version hier nicht mehr aktuell gehalten. Siehe unsere aktuelle Datenschutzerklärung [hier](https://swdec.de/datenschutz).
+
 # Datenschutzerklärung des Südwestdeutschen Jugendverbandes "Entschieden für Christus"
 
 ## Warum?
